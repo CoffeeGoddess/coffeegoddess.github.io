@@ -1,3 +1,4 @@
-# Welcome to my blog
+# Welcome to the best virtual Coffee place
 
-I'm glad you are here. I plan to talk about ...
+Enjoy a nice gallery of my best work of art...
+[Click here to visit my gallery!](https://greciiagzz.deviantart.com/)
